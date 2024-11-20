@@ -43,7 +43,7 @@ Here are some of the key technologies I work with:
 Feel free to reach out or connect with me:
 
 - 📫 Email: [fishflete@gmail.com](mailto:fishflete@gmail.com)
-- 💼 LinkedIn: *[https://www.linkedin.com/in/fisher-fletemeyer-5b5250303/]*
+- 💼 LinkedIn: *[Click Here!] (https://www.linkedin.com/in/fisher-fletemeyer-5b5250303/)*
 
 ---
 
